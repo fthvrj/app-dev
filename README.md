@@ -9,7 +9,7 @@
 - Suspenseful plot with supernatural elements.
 
 ## Favorite character
-- **Eleven** — because of her growth and courage.
+- **Steve** — because of his best take care of kids and handsome.
 
 ## Recommended to
 Anyone who likes mystery, supernatural, and coming-of-age stories.
